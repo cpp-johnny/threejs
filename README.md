@@ -1,0 +1,1 @@
+bruh vercel image doesnt load
